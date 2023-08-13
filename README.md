@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @nautic-x here
+- 👋 Hi, I’m @nautic-x
 
 
 <!---
