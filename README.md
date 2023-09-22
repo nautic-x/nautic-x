@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @nautic-x
+- 👋 Hi, I’m @nautic-x || LinkedIn: www.linkedin.com/in/charles-cudjoe-bb7213277 || 
 
 
 <!---
